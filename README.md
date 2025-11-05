@@ -47,7 +47,7 @@ Driven by curiosity and creativity, I love transforming ideas into real-world ap
 
 🔗 [LinkedIn Profile](www.linkedin.com/in/ali-guissou-549201319)  
 💼 **GitHub:** [(https://github.com/Guali-spec)]
-
+ 
 ---
 
 ### 🧩 Fun Fact
